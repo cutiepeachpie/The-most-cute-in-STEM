@@ -1,17 +1,18 @@
-<h1 align="center">Hi 👋, I'm Melcy [Mel in STEM]</h1>
+<h1 align="center">Welcome ♥ I'm Melcy ♥  [Mel in STEM]</h1>
 <h3 align="center">Education in networks and microcomputer system & from Barcelona</h3>
 
-- Mel´s Education **in networks and microcomputer system**
+- Mel´s Education **in networks and Microcomputer System**
 
-- Studying **programming**
+- Studying **Programming**
 
-- Looking Barcelona around to **be part of the STEM world, where I can apply my knowledge and skills to solve real problems and contribute to the advancement of science and technology**
+- Looking Barcelona around to **be part of the STEM world. I can apply my knowledge and skills to solve real problems and contribute to the advancement of science and technology**
 
 - Proud to say I have been in a contest [of Robotics, Assembly and Programming in the LEGO League, UPC Barcelona University [2nd place]](of Robotics, Assembly and Programming in the LEGO League, UPC Barcelona University [2nd place])
 
 - MEL in gmail: **melcydanielafloresguzman21@gmail.com**
 
-- 📄 Do you want to know a bit more about Mel?? [Conocimiento y práctica en el control de idiomas: Catalán , Español, Ingles, Alemán Creatividad, atencion al cliente y lealtad a la empresa. Herramientas ofimáticas: Microsoft Office / Libre Office Sistema operativo: Windows Conocimiento/uso de Redes Sociales: Facebook, Tik Tok, Youtube, Instagram, LinkedIn, Google+, Pinterest](Conocimiento y práctica en el control de idiomas: Catalán , Español, Ingles, Alemán Creatividad, atencion al cliente y lealtad a la empresa. Herramientas ofimáticas: Microsoft Office / Libre Office Sistema operativo: Windows Conocimiento/uso de Redes Sociales: Facebook, Tik Tok, Youtube, Instagram, LinkedIn, Google+, Pinterest)
+- 📄 Do you want to know a bit more about Mel?
+- ♥ [Conocimiento y práctica en el control de idiomas: Catalán , Español, Ingles, Alemán Creatividad, atencion al cliente y lealtad a la empresa. Herramientas ofimáticas: Microsoft Office / Libre Office Sistema operativo: Windows Conocimiento/uso de Redes Sociales: Facebook, Tik Tok, Youtube, Instagram, LinkedIn, Google+, Pinterest](Conocimiento y práctica en el control de idiomas: Catalán , Español, Ingles, Alemán Creatividad, atencion al cliente y lealtad a la empresa. Herramientas ofimáticas: Microsoft Office / Libre Office Sistema operativo: Windows Conocimiento/uso de Redes Sociales: Facebook, Tik Tok, Youtube, Instagram, LinkedIn, Google+, Pinterest)
 
 - ⚡ Some facts **Mel have Honours in practical tests &**
 

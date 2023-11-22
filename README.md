@@ -1,14 +1,13 @@
 <h1 align="center">WELCOME TO MY PLACE </h1>
 <h3 align="center">Education in networks and microcomputer system & from Barcelona</h3>
 
-- The most cute in STEM
-Said once...  _meine.name.ist.Melcy_.
+The most cute in STEM once said...  meine.name.ist.Melcy_.
 
 I will take this to the next level programming in German for 2024
 
  Do prefer German, English, Spanish maybe Catalan? 
 
- Mel´s Education **in networks and Microcomputer System**
+Mel´s Education **in networks and Microcomputer System**
 
 Studying Programming JavaScript, Phyton and Big Data
 

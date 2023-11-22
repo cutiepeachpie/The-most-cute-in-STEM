@@ -14,9 +14,12 @@
 - MEL in gmail: **melcydanielafloresguzman21@gmail.com**
 
 - 📄 Do you want to know a bit more about Mel?
-- ♥ [Conocimiento y práctica en el control de idiomas: Catalán , Español, Ingles, Alemán Creatividad, atencion al cliente y lealtad a la empresa. Herramientas ofimáticas: Microsoft Office / Libre Office Sistema operativo: Windows Conocimiento/uso de Redes Sociales: Facebook, Tik Tok, Youtube, Instagram, LinkedIn, Google+, Pinterest](Conocimiento y práctica en el control de idiomas: Catalán , Español, Ingles, Alemán Creatividad, atencion al cliente y lealtad a la empresa. Herramientas ofimáticas: Microsoft Office / Libre Office Sistema operativo: Windows Conocimiento/uso de Redes Sociales: Facebook, Tik Tok, Youtube, Instagram, LinkedIn, Google+, Pinterest)
+- Conocimiento, práctica en el control de idiomas: Catalán (nativo), Español (nativo), Ingles(Advance), Alemán (A.1) [ Sabatic year in Baden-Baden, Frankfurt and Lahr ].
+- Herramientas ofimáticas: Microsoft Office / Libre Office
+- Sistema operativo: Windows
+- Conocimiento/uso de Redes Sociales: Facebook, Tik Tok, Youtube, Instagram, LinkedIn, Google+, Pinterest]
 
-- ⚡ Some facts **Mel have Honours in practical tests &**
+- ⚡ Some facts **Mel have honours in practical tests &**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

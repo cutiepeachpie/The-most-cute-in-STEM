@@ -1,27 +1,31 @@
 <h1 align="center">WELCOME TO MY PLACE </h1>
 <h3 align="center">Education in networks and microcomputer system & from Barcelona</h3>
 
-The most cute in STEM once said...  meine.name.ist.Melcy_.
+*:･ﾟ✧*:･ﾟ✧ The most cute in STEM *:･ﾟ✧*:･ﾟ✧ 
 
-I will take this to the next level programming in German for 2024
+Once said... Meine.name.ist.Melcy_.
 
- Do prefer German, English, Spanish maybe Catalan? 
+˚ · • . ° . I will take this to the next level programming in German for 2024 ˚ · • . ° .
+ 
 
-Mel´s Education **in networks and Microcomputer System**
+.・゜゜・ Mel´s Education ・゜゜・．**in networks and Microcomputer System**
 
-Studying Programming JavaScript, Phyton and Big Data
+2023: Studying Programming JavaScript, Phyton and Big Data
 
 Looking Barcelona around to **be part of the STEM world. I can apply my knowledge and skills to solve real problems and contribute to the advancement of science and technology**
 
 Proud to say I have been in a contest of Robotics, Assembly and Programming in the LEGO League, UPC Barcelona University 2nd place
 
-MEL in gmail: **melcydanielafloresguzman21@gmail.com**
+˚ ♡ ⋆｡˚ MEL in gmail ˚ ♡ ⋆｡˚ ❀ **melcydanielafloresguzman21@gmail.com**
 
 Do you want to know a bit more about Mel?
   
  Conocimiento, práctica en el control de idiomas: Catalán (nativo), Español (nativo), Ingles(Advance), Alemán (A.1) [ Sabatic year in Baden-Baden, Frankfurt and Lahr ].
+ 
  Herramientas ofimáticas: Microsoft Office / Libre Office
+ 
  Sistema operativo: Windows
+ 
  Conocimiento/uso de Redes Sociales: Facebook, Tik Tok, Youtube, Instagram, LinkedIn, Google+, Pinterest]
 
 Some facts Mel have honours in Practical tests

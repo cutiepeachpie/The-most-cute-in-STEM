@@ -1,11 +1,14 @@
 <h1 align="center">WELCOME TO MY PLACE </h1>
 <h3 align="center">Education in networks and microcomputer system & from Barcelona</h3>
 
-- The most cute in STEM _meine.name.ist.Melcy_. Do prefer German, English, Spanish maybe Catalan? 
+- The most cute in STEM
+-  _meine.name.ist.Melcy_. I will take this to the next level porgramming in German in 2024
+-
+-  Do prefer German, English, Spanish maybe Catalan? 
 
 - Mel´s Education **in networks and Microcomputer System**
 
-- Studying **Programming**
+- Studying Programming JavaScript, Phyton and Big Data
 
 - Looking Barcelona around to **be part of the STEM world. I can apply my knowledge and skills to solve real problems and contribute to the advancement of science and technology**
 
@@ -13,13 +16,15 @@
 
 - MEL in gmail: **melcydanielafloresguzman21@gmail.com**
 
-- 📄 Do you want to know a bit more about Mel?
+- Do you want to know a bit more about Mel?
+  
+  ES/
 - Conocimiento, práctica en el control de idiomas: Catalán (nativo), Español (nativo), Ingles(Advance), Alemán (A.1) [ Sabatic year in Baden-Baden, Frankfurt and Lahr ].
 - Herramientas ofimáticas: Microsoft Office / Libre Office
 - Sistema operativo: Windows
 - Conocimiento/uso de Redes Sociales: Facebook, Tik Tok, Youtube, Instagram, LinkedIn, Google+, Pinterest]
 
-- ⚡ Some facts **Mel have honours in practical tests &**
+- ⚡ Some facts Mel have honours in Practical tests
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

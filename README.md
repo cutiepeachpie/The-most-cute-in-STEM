@@ -3,7 +3,7 @@
 
 *:･ﾟ✧*:･ﾟ✧ The most cute in STEM *:･ﾟ✧*:･ﾟ✧ 
 
-Once said... Meine.name.ist.Melcy_.
+Once said... Meine.name.ist.Melcy 
 
 ˚ · • . ° . I will take this to the next level programming in German for 2024 ˚ · • . ° .
  
@@ -16,19 +16,16 @@ Looking Barcelona around to **be part of the STEM world. I can apply my knowledg
 
 Proud to say I have been in a contest of Robotics, Assembly and Programming in the LEGO League, UPC Barcelona University 2nd place
 
-˚ ♡ ⋆｡˚ MEL in gmail ˚ ♡ ⋆｡˚ ❀ **melcydanielafloresguzman21@gmail.com**
-
 Do you want to know a bit more about Mel?
   
  Conocimiento, práctica en el control de idiomas: Catalán (nativo), Español (nativo), Ingles(Advance), Alemán (A.1) [ Sabatic year in Baden-Baden, Frankfurt and Lahr ].
- 
  Herramientas ofimáticas: Microsoft Office / Libre Office
- 
  Sistema operativo: Windows
- 
  Conocimiento/uso de Redes Sociales: Facebook, Tik Tok, Youtube, Instagram, LinkedIn, Google+, Pinterest]
+ Some facts Mel have honours in Practical tests
 
-Some facts Mel have honours in Practical tests
+˚ ♡ ⋆｡˚ MEL in gmail ˚ ♡ ⋆｡˚ ❀ **melcydanielafloresguzman21@gmail.com**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

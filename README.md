@@ -13,11 +13,12 @@ In high school I question myself what my career will be. Wich path would be mine
 2023: Studying Programming JavaScript, Phyton and Big Data 
 Proud to say I have been in a contest of Robotics, Assembly and Programming in the LEGO League, UPC Barcelona University 2nd place
 
- Do you want to know a bit more about Mel?
+ - Do you want to know a bit more about Mel?
  
  Conocimiento, práctica en el control de idiomas: Catalán (nativo), Español (nativo), Ingles(Advance), Alemán (A.1) [ Sabatic year in Baden-Baden, Frankfurt and Lahr ].
  Herramientas ofimáticas: Microsoft Office / Libre Office
  Sistema operativo: Windows
+ 
  Conocimiento/uso de Redes Sociales: Facebook, Tik Tok, Youtube, Instagram, LinkedIn, Google+, Pinterest]
  Some facts Mel have honours in Practical tests
  

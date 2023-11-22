@@ -1,4 +1,4 @@
-<h1 align="center">Welcome ♥ I'm Melcy ♥  [Mel in STEM]</h1>
+<h1 align="center">WELCOME TO MY PLACE ·  I'm Melcy  [Mel in STEM]</h1>
 <h3 align="center">Education in networks and microcomputer system & from Barcelona</h3>
 
 - Mel´s Education **in networks and Microcomputer System**

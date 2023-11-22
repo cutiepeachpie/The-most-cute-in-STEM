@@ -1,7 +1,7 @@
 <h1 align="center">WELCOME TO MY PLACE </h1>
 <h3 align="center">Education in networks and microcomputer system & from Barcelona</h3>
 
-- The most cute in STEM _meine.name.ist.Melcy_ for you only today Mel. Do you German? 
+- The most cute in STEM _meine.name.ist.Melcy_. Do prefer German, English, Spanish maybe Catalan? 
 
 - Mel´s Education **in networks and Microcomputer System**
 

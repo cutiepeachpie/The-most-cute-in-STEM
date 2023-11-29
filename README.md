@@ -1,4 +1,4 @@
-<img src"https://www.canva.com/design/DAF1cnOfbAA/Uk92oSIeyDExflipxoIGpw/edit?utm_content=DAF1cnOfbAA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton">
+
 <h1 align="center">WELCOME TO MY PLACE </h1>
 <h3 align="center">Education in networks and microcomputer system & from Barcelona</h3>
 

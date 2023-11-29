@@ -25,7 +25,7 @@ Proud to say I have been in a contest of Robotics, Assembly and Programming in t
  
  Some facts Mel have honours in Practical tests
  
-˚ ♡ ⋆｡˚ MEL in gmail ˚ ♡ ⋆｡˚ ❀ **melcydanielafloresguzman21@gmail.com**
+˚ ♡ ⋆｡˚ MEL in gmail ˚ ♡ ⋆｡˚ ❀ **melinstem@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
